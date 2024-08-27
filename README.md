@@ -1,2 +1,0 @@
-# xyixyi
-ponos deda remix
